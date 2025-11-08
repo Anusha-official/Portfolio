@@ -1,2 +1,4 @@
 # Portfolio
-Resume Writer &amp; Social Media Strategist with 2+ years of experience in ATS-optimized career documents, LinkedIn branding, and digital content campaigns. Delivered 1,200+ resumes globally and executed high-impact social media strategies for brand growth.
+I’m Anusha a Resume Writer and Social Media Strategist with **over 2 years** of experience helping professionals and brands stand out in competitive markets. My expertise spans ATS-optimized resume writing, LinkedIn profile enhancement, and digital content strategy across platforms like Instagram, Facebook, and LinkedIn.
+I’ve delivered more than 1,200 career documents with a 4.9-star rating, supporting clients across the **USA, Germany, Ireland, Denmark, UAE and APAC regions**. My work blends storytelling, keyword strategy, and performance analytics to drive visibility, engagement and results.
+Whether crafting a compelling resume or executing a high-impact social media campaign, I focus on clarity, relevance and measurable outcomes. I’m passionate about helping individuals and businesses communicate their value with confidence.
